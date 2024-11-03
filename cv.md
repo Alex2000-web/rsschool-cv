@@ -15,4 +15,4 @@ kravchenkoaleksandra3@gmail.com
 -Javascript
 -Git
 
-Владение языками: Английский(А2)
+Владение языками: Английский(А2, В1 в процессе)
